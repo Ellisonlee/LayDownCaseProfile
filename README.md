@@ -16,4 +16,4 @@
 | 12月01日 | 广场上开始造黄谣<br><img src="./Pics/造黄谣.jpeg" alt="Editor" width="200"> | 晚间直播澄清<br>表示这两天行程密集，不知道发生了什么。<br>视频：<br>https://www.bilibili.com/video/BV1SU4y1T7hZ<br><img src="./Pics/1201-xyyz.png" alt="Editor" width="200">|  | |
 | 12月02日 | 凌晨开始大量at小偶像本人<br><img src="./Pics/at小偶像2.jpeg" alt="Editor" width="200"> |<img src="./Pics/1202-xyyz.png" alt="Editor" width="200">| <img src="./Pics/王晓佳回应/1202.png" alt="Editor" width="200"> | <img src="./Pics/协调群草芸粉丝发言.png" alt="Editor" width="200"> |
 | 12月03日 | <img src="./Pics/黑粉依然在带大名造谣.png" alt="Editor" width="100"> |<img src="./Pics/1203-xyyz.png" alt="Editor" width="200">|  | 昕羊应援会会长西瓜熊<br>接近4日凌晨发出澄清微博<br>并还原沟通过程<br>https://weibo.com/2350793917/|
-| 12月04日 | 下午两点左右<br><img src="./Pics/粉丝骂陈琳1.jpeg" alt="Editor" width="200"> |<img src="./Pics/1203-xyyz.png" alt="Editor" width="200">|注意“前天”<br> <img src="./Pics/王晓佳回应/1204.png" alt="Editor" width="200"> |  |
+| 12月04日 | 下午两点左右<br><img src="./Pics/粉丝骂陈琳1.jpeg" alt="Editor" width="200"> |<img src="./Pics/1203-xyyz.png" alt="Editor" width="200">|下午一点左右<br>注意第一句的“前天”<br> <img src="./Pics/王晓佳回应/1204.png" alt="Editor" width="200"> |  |
